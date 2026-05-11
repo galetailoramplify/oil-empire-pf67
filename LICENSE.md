@@ -1,4 +1,4 @@
-#  
+#  top Scripts for bedwars is the best bedwars Script, featuring one-hit kill and auto-heal. Safe and powerful for all your needs.
 
 
 
